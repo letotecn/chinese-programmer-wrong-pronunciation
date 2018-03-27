@@ -89,4 +89,4 @@
 
 
 #### 读对了所有的单词？
-我们正在招聘优秀的程序员，欢迎[加入石墨文档](https://shimo.im/doc/G3ckHEVF3f4qANHk)
+我们正在招聘优秀的程序员，欢迎[加入 Le Tote 莱尔托特](https://www.letote.cn)
